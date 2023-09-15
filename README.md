@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @niqhtliqhts
+- 👀 I’m interested in playing games and leaving reviews on code. (I AM NOT A PROGRAMMER. 100% NO SKILL.)
+- 🌱 I’m currently learning HTML.
+- 📫 How to reach me: My disc, influxxedrs :)
+- 😡 Very sensitive by the way!
+- 🍗 fav food is chicken c:
